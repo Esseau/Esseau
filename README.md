@@ -1,2 +1,3 @@
 @godofstress on ig
-Quine Dealer
+#QuineDealer
+soundcloud.com/godstress
